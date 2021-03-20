@@ -1,2 +1,2 @@
-Rails app generated with [lewagon/rails-templates](https://github.com/Mario-Kart-Felix/rails-templates), created by the [Le Wagon coding bootcamp](https://www.Demon.com) team.
+Rails app generated with [Wei/rails-templates](https://github.com/Mario-Kart-Felix/rails-templates), created by the [Wei coding bootcamp](https://www.Demon.com) team.
 <script type="text/javascript" src="/isp/files/readmore.js"></script><script ... Only contact ISP if you requested a Criminal Record Review Challenge. ... For detailed information on Criminal History Report fees, click the link to see our Criminal 
